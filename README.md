@@ -1,10 +1,9 @@
 # Blog-Posts
 you can find all my blogs till now and Upcoming blogs so stay toned
 
-Why do people like anime? And what do I think?
-https://ezraraj06.blogspot.com/2021/07/why-people-like-anime.html
+Why do people like anime? And what do I think? click Here
 
-Dragon ball franchise -( info,hiden details, should it good to whatch)
+Dragon ball franchise -( info,hiden details, should it good to whatch) click here
 https://ezraraj06.blogspot.com/2021/07/dragon-ball-franchise-infohiden-details.html
 
 Chapter 1: The Righteousness of Life 
@@ -39,3 +38,5 @@ https://ezraraj06.blogspot.com/2024/09/embracing-growth-my-journey-from.html
 
 Chapter 2: Dreams of truth - the island of destruction 
 https://ezraraj06.blogspot.com/2024/09/chapter-2-dreams-of-truth-island-of.html
+
+
