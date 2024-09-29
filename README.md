@@ -1,7 +1,8 @@
 # Blog-Posts
 you can find all my blogs till now and Upcoming blogs so stay toned
 
-Why do people like anime? And what do I think? click Here
+Why do people like anime? And what do I think?
+https://ezraraj06.blogspot.com/2021/07/why-people-like-anime.html
 
 Dragon ball franchise -( info,hiden details, should it good to whatch) click here
 https://ezraraj06.blogspot.com/2021/07/dragon-ball-franchise-infohiden-details.html
